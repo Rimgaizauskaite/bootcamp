@@ -1,1 +1,1 @@
-Bandom git'ą
+mūsų nuostabus Bootcamp projektas
