@@ -1,1 +1,1 @@
-mūsų nuostabus Bootcamp projektas
+made by Petras
